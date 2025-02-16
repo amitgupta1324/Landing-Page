@@ -1,3 +1,3 @@
 codsoft content here 
- and the some projects.
+ and the some projects. 
  
